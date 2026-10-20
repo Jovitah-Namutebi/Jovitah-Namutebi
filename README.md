@@ -1,4 +1,4 @@
-# Jovitah Namutebi
+# Jovitah-Namutebi
 
 **PhD Student in Economics | Tufts University**
 
